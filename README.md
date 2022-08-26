@@ -1,2 +1,2 @@
 Coding is good
-happy learning
+Happy learning
